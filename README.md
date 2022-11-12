@@ -1,1 +1,0 @@
-# web.goldenddos.com
